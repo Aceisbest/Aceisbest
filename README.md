@@ -1,7 +1,3 @@
-♡Yo I'm ace♡ 
-   
-    ♡I make mod's for quest-Vrchat♡ 
-        
-          ♡Discord- ༺ ఌ𝓩𝓮𝓻𝓸_𝓐𝓬𝓮༒ ༻#9719      ♡Will be making a lot more mod's later on♡
-          
-           ♡♡Ok have a nice day now♡♡
+Yo what's up, I'm ace I hit buttons to code and shit lol
+
+![Fuck](https://th.bing.com/th/id/R.6166533c92f4116eb751bca917c09c4b?rik=LLuHcViwYNJ4aA&pid=ImgRaw&r=0)
